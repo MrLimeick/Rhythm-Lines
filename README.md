@@ -1,3 +1,3 @@
 # Rhythm-Lines
 
-08/06/2022 Curves in progress
+06/19/2022 update is soon?
